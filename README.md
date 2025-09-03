@@ -27,4 +27,6 @@ Exigir Ethical AI by Design por lei.
 
 Garantir transparência e consentimento informado (especialmente de pais).
 
-Estabelecer colaboração entre desenvolvedores e especialistas em saúde mental.
+Estabelecer colaboração entre desenvolvedores e especialistas em saúde mental.44
+
+https://www.linkedin.com/feed/update/urn:li:share:7369007904781197312/
